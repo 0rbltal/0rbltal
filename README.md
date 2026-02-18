@@ -1,3 +1,3 @@
-## Hi ig?
+## Idfk
 
 Working on ETHER
